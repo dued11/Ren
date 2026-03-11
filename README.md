@@ -1,5 +1,5 @@
 ahem ahem.. 
-HELL0 I'm _____(figuring out identity)
+HELL0 I'm Theo or whateva
 kinda anxious so uh iwc alrig? 
 -
 
@@ -14,7 +14,7 @@ disrespectful and lack empathy ppl(some) ppls go far away or iwec
 fun fact (about meh) 
 
 I like: 
-ships - MEDHAMMERBOX(phight) TTHEY MY GOATS, Zuka x broker ok?.. Flowertime(dw)!! 
+ships - MEDHAMMERBOX(phight) TTHEY MY GOATS, Zuka x broker, and SWOCKET!/durr face 
 
 fav color - uskskshsis blue and green, technically cyan, wait maybe Turquoise/teal..oh wait aqua?? 
 
